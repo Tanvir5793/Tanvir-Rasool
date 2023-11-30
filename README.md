@@ -13,7 +13,7 @@
 
 - 🤝 I’m looking for help with [New oppertunities](NA)
 
-- 👨‍💻 All of my projects are available at [NA](NA)
+- 👨‍💻 All of my projects are available at [www.linkedin.com/in/tanvir-rasool-318625246]()
 
 - 💬 Ask me about **My current skills**
 
@@ -21,7 +21,7 @@
 
 - 📄 Know about my experiences [www.linkedin.com/in/tanvir-rasool-318625246](www.linkedin.com/in/tanvir-rasool-318625246)
 
-- ⚡ Fun fact **NA**
+- ⚡ Fun fact **May be**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
