@@ -1,3 +1,4 @@
+![logo](https://github.com/Tanvir5793/Tanvir-Rasool/blob/main/github%20banner.jpg)
 <h1 align="center">Hi 👋, I'm TANVIR RASOOL</h1>
 <h3 align="center">I have learned CLOUD ARCHITECTURE</h3>
 
